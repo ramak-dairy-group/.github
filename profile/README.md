@@ -18,7 +18,7 @@
 
 ## 🏭 Who we are
 
-**Ramak Dairy Group** was founded in **1980** in **Shiraz, Fars Province** 🇮🇷,
+**Ramak Dairy Group** was founded in **1990** in **Shiraz, Fars Province** 🇮🇷,
 and has grown into a national dairy brand with branches in more than
 **30 cities** across Iran.
 
@@ -29,7 +29,7 @@ ingredients — for families of every size. 👨‍👩‍👧‍👦
 
 | 📅 Since | 🏙️ Branches | 🏅 ISO standards | 🧺 Product families |
 |:---:|:---:|:---:|:---:|
-| **1980** | **30+ cities** | **4** | **5** |
+| **1990** | **30+ cities** | **4** | **5** |
 
 </div>
 
